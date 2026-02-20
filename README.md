@@ -1,1 +1,0 @@
-# karalapti-naresh-portfolio
